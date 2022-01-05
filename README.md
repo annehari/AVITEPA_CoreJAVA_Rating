@@ -1,0 +1,1 @@
+# AVITEPA_CoreJAVA_Rating
